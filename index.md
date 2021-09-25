@@ -8,15 +8,15 @@
 
 ## Neutrality of opinion
  1. We refrain from any attempt to represent, endorse, attract or indirectly impose or popularize any particular set of beliefs or opinions, political philosophy, guru, organization, cult, sect or any specific way of life. 
+ 
+ ## Synergy
+ 1. Once open minded, neutral, calm people experience peace of mind together, then synergy happens leading to unimaginable partnerships, projects and value unlocking for individual and collective welfare.
 
 ## Space
 1. Here space and silence mean purity of action and speech or communication.
  2.  Silence also means, briefly giving details, in all humility, about your own direct experience (not of others!) and resultant specific practice or world view.
  3. Your originality is appreciated, merely voicing opinions of others doesn't add lasting value.
  4. Space means not trying to prevail over others directly or indirectly, physically or intellectually. Best is to have patience while people and things evolve.
-
-## Synergy
- 1. Once open minded, neutral, calm people experience peace of mind together, then synergy happens leading to unimaginable partnerships, projects and value unlocking for individual and collective welfare.
 
 ## Set own example
 1. If in your heart you sincerely desire to help others or make the world better, then please set your own example, be the change you want to see in others. People will be automatically attracted by your positive vibes and behavior. Our behavior is our introduction. Actions speak louder than words.
