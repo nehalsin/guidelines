@@ -9,7 +9,7 @@
 ## Neutrality of opinion
  1. We refrain from any attempt to represent, endorse, attract or indirectly impose or popularize any particular set of beliefs or opinions, political philosophy, guru, organization, cult, sect or any specific way of life. 
  
- ## Synergy
+## Synergy
  1. Once open minded, neutral, calm people experience peace of mind together, then synergy happens leading to unimaginable partnerships, projects and value unlocking for individual and collective welfare.
 
 ## Space
