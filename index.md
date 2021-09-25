@@ -14,9 +14,10 @@
 
 
 ## Space
-1. Here space and silence means purity of action and speech or communication.
- 2.  Silence also means briefly giving details in all humility about your own direct experience (not of others!) and resultant specific practice or world view.
- 3. Space means not trying to prevail over others directly or indirectly, physically or intellectually. Best is to have patience while people and things evolve.
+1. Here space and silence mean purity of action and speech or communication.
+ 2.  Silence also means, briefly giving details, in all humility, about your own direct experience (not of others!) and resultant specific practice or world view.
+ 3. Your originality is appreciated, merely voicing opinions of others doesn't add lasting value.
+ 4. Space means not trying to prevail over others directly or indirectly, physically or intellectually. Best is to have patience while people and things evolve.
 
 ## Synergy
- 1. Once open minded, neutral, calm people emerge together, then synergy happens leading to unimaginable partnerships, projects and value unlocking for individual and collective welfare.
+ 1. Once open minded, neutral, calm people experience together, then synergy happens leading to unimaginable partnerships, projects and value unlocking for individual and collective welfare.
