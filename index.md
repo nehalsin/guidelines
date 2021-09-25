@@ -1,6 +1,5 @@
-#  Neutrality
 
-# Open Neutral Space Synergy
+# Open Neutral  Synergy Spaces
 
 ## Open Mind
 1. We are open to new ideas and feedback with an open mind.
@@ -9,9 +8,6 @@
 
 ## Neutrality of opinion
  1. We refrain from any attempt to represent, endorse, attract or indirectly impose or popularize any particular set of beliefs or opinions, political philosophy, guru, organization, cult, sect or any specific way of life. 
- 2. If in your heart you sincerely desire to help others or make the world better, then please set your own example, be the change you want to see in others. People will be automatically attracted by your positive vibes and behavior. Our behavior is our introduction. Actions speak louder than words.
- 3. In the common interest of all concerned, we expect clear communication while you introduce yourself in the beginning in detail, regarding your inner motivation purely for individual self purification by your own individual practice in silence.
-
 
 ## Space
 1. Here space and silence mean purity of action and speech or communication.
@@ -20,4 +16,8 @@
  4. Space means not trying to prevail over others directly or indirectly, physically or intellectually. Best is to have patience while people and things evolve.
 
 ## Synergy
- 1. Once open minded, neutral, calm people experience together, then synergy happens leading to unimaginable partnerships, projects and value unlocking for individual and collective welfare.
+ 1. Once open minded, neutral, calm people experience peace of mind together, then synergy happens leading to unimaginable partnerships, projects and value unlocking for individual and collective welfare.
+
+## Set own example
+1. If in your heart you sincerely desire to help others or make the world better, then please set your own example, be the change you want to see in others. People will be automatically attracted by your positive vibes and behavior. Our behavior is our introduction. Actions speak louder than words.
+ 2. In the common interest of all concerned, we expect clear communication while you introduce yourself in the beginning in detail, regarding your inner motivation purely for individual self purification by your own individual practice in silence.
