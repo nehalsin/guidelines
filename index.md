@@ -1,6 +1,6 @@
 # Voluntary Spirit Guidelines
 
-<span style='background-color:#ffff8b;'>**OPEN NEUTRAL  SYNERGY SPACES**</span>
+<span style='background-color:#ffff8b;'>**== OPEN NEUTRAL  SYNERGY SPACES ==**</span>
 
 ## Open Mind
 1. We are open to new ideas and feedback with an open mind.
