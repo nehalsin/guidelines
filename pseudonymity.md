@@ -1,5 +1,5 @@
 ## Pseudonymity
-Value - Privacy - Safety
+**Value - Privacy - Safety**
 
 ### Benefits all - No Cost
  1. Get value directly, give value indirectly.
@@ -8,7 +8,9 @@ Value - Privacy - Safety
  4. Safe from network abuse.
  
 ### Pseudonymity Guidelines
-To help the real person identify with self, yet can not be tracked.
+To help the real person identify with self, yet not be identified by others.
 
-1. Keep gender, first letter of name, age within 10%.
-2. Location and work can be similar, not same.
+Kept same: gender, first letter of name. Age within 10%.
+
+Location and work are similar, not same.
+
